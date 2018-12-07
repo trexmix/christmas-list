@@ -10,6 +10,8 @@ Roughly in order of preference. When I give specifics I don't mean to be picky, 
 
 **Prosperity**- [Steam link](https://store.steampowered.com/app/734980/Prosperity/)
 
+**Scientific Principles of Strength Training**- [Link](https://www.jtsstrength.com/product/scientific-principles-of-strength-training/) Really cool book with great information about programming workouts
+
 **Sushi Go**- [Board game](https://boardgamegeek.com/boardgame/133473/sushi-go). I think all of the Trexler's+Granna would like it.
 
 **Nice cooking knife**- Specifically one really good knife. I would want to keep it in my room so that my roommates can't use it so I would want one really good one (not a set). But I already have some knives so I would really only want a high quality one (I have some alright ones).
